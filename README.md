@@ -1,0 +1,1 @@
+# PMI-Certified-Professional-in-Managing-AI-PMI-CPMAI-Exam-Questions
